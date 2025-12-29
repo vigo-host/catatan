@@ -38,14 +38,35 @@ I Like You But I Dont Know You like Who
 
 
 
-    
+   
+ _KAMPANGGGGGGGGGGGGGGG IHIRRRRRRR_
 
-<!-- KAMPANGGGGGGGGGGGGGGG IHIRRRRRRR -->
+.
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
+. 
 
 
 
 
 
+.
+. 
+. 
+. 
+. 
 
 
 
@@ -110,5 +131,11 @@ I Like You But I Dont Know You like Who
 
 
 
+
+
+
+. 
+. 
+. 
 
 *PEKA DIKIT KEEEKKK INI CUMA BUAT LUUU ANJIRRRRR 😡😡*
